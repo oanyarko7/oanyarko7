@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me 0580892820
+- 📫 How to reach me gambaritibash143@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
